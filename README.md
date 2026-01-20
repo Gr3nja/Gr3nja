@@ -1,0 +1,7 @@
+## Hi there 👋
+
+I'm Gr3nja
+I am programmer from Japan.
+
+↓SubAccount
+https://github.com/KiarinaBCC
